@@ -697,7 +697,7 @@ Butter Chicken Pizza combines the creamy richness of Indian butter chicken with 
 
 ## Homemade Vegetarian Pizza
 
-![Homemade Vegetarian Pizza](image/pizza-2589575_640.jpg)
+![Homemade Vegetarian Pizza](images/pizza-2589575_640.jpg)
 
 Homemade Vegetarian Pizza was a recipe birthed from necessity. I wasn't happy with the customer service at my local restaurants. So I experimented with different pizza recipes, which morphed into how I make my Homemade Vegetarian Pizza!
 
