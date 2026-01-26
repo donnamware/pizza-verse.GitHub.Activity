@@ -694,10 +694,9 @@ Butter Chicken Pizza combines the creamy richness of Indian butter chicken with 
 4. **Serve:**  
    - Garnish with coriander leaves. Slice and enjoy hot.  
 
-
 ## Homemade Vegetarian Pizza
 
-![Homemade Vegetarian Pizza](images/pizza-2589575_640.jpg)
+![Homemade Vegetarian Pizza](images/homemade-vegetarian-pizza.jpg)
 
 Homemade Vegetarian Pizza was a recipe birthed from necessity. I wasn't happy with the customer service at my local restaurants. So I experimented with different pizza recipes, which morphed into how I make my Homemade Vegetarian Pizza!
 
@@ -708,7 +707,7 @@ Homemade Vegetarian Pizza was a recipe birthed from necessity. I wasn't happy wi
 - 1/4 of a large sweet onion sliced finely
 - 1/2 of a large pepper(red, green or yellow) sliced in 1/4 in pieces
 - A handful of baby bella mushrooms to cover the pizza
-- A handful of fresh spinach 
+- A handful of fresh spinach
 - 8 oz bag of shredded pizza cheese
 - Black pepper
 - Red pepper
@@ -716,20 +715,21 @@ Homemade Vegetarian Pizza was a recipe birthed from necessity. I wasn't happy wi
 - Your favorite pizza sauce
 - 1/4 tsp Olive oil
 
-### **Assemble Pizza:**
+### Assemble Pizza
 
-- spread the pizza dough evenly on a pizza pan 
+- Spread the pizza dough evenly on a pizza pan
 - Cover the top of the pizza dough with olive oil
 - Season the dough with seasoning to your taste
-- top the dough with your desired amount of pizza sauce
+- Top the dough with your desired amount of pizza sauce
 - Cover the pizza sauce with all of the pizza cheese
-- top with all the vegetables except the spinach
-- when the crust is a light golden brown on the edges
+- Top with all the vegetables except the spinach
+- When the crust is a light golden brown on the edges
 - Rub the spinach with a light coating of olive oil and put it on top of the pizza
 - Cook another 5 minutes
 - Slice your pizza and eat!
 
-### **Pro-Tips**
+### Pro-Tips
+
 - Preheat the oven to 400° degrees
-- don't let the crust get more than a medium golden brown
-- make sure you rub the spinich with olive oil before putting it on top of the pizza and wait till the last 5 minutes to put it on top of the pizza
+- Don't let the crust get more than a medium golden brown
+- Make sure you rub the spinach with olive oil before putting it on top of the pizza and wait till the last 5 minutes to put it on top of the pizza
